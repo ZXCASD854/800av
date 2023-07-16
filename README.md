@@ -1,6 +1,6 @@
 800AV影库 最新地址发布
 ==
-地址一 ：https://www.5xxav.com
+地址一 ：http://www.618sss.com
 ------
 地址二 ：https://www.tttb8.com
 ------
